@@ -1,4 +1,3 @@
-# afghan-refugee
 
 # Risk Factors and Intracommunal Disputes Among Afghan Refugees Returning from Pakistan
 
